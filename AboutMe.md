@@ -13,5 +13,7 @@ Other than computers, I enjoy hiking, playing tennis, shooting archery, and read
 
 ## Role Models
 * Mark Cuban 
+
+
 ![MarkCuban](https://github.com/mbeier08/mbeier08-Profile/blob/main/579x579-Q90_658ffd051a71b2cb8bcae612645a957d.jpg)
 * Coco Gauff 
